@@ -1,2 +1,2 @@
-# Leushtean.github.io
+# Nicolae Tepordei
 Training sites
